@@ -1,4 +1,4 @@
 - 🔭 I’m currently studying in the UCR.
 - 🌱 I’m currently on the second year of the career.
-- 👯 I’m looking to learn with the help of more experimented people on the Software engineer job.
+- 👯 I’m looking to learn more with the help of more experimented people on the Software engineer job.
 - 📫 How to reach me: luisdavidcarvajal06@gmail.com
